@@ -2,7 +2,7 @@
 about us
 
 *` WELCOME TO OUR HOME `*
-![WELCOME TO OUR HOME](https://i.pinimg.com/1200x/30/02/cb/3002cb46254963e8c316a73a78b3b039.jpg) ~❦
+![WELCOME TO OUR HOME](https://i.pinimg.com/1200x/30/02/cb/3002cb46254963e8c316a73a78b3b039.jpg) 
 
 
 .
@@ -79,8 +79,6 @@ about us
 
 .
 
-[IMG=O6K]
-
 .
 
 .
@@ -109,19 +107,21 @@ about us
 
 .
 
-[C]╔═══ *.·:·.☽✧   ✦   ✧☾.·:·.*═══╗
+╔═══ *.·:·.☽✧   ✦   ✧☾.·:·.*═══╗
 
-[CIU]To my dear Neighbors:
+ To My Darlings:
 
-[CIU]        Oh Why Hello My Neighbors! This is Wally! You must be new in here! Don’t worry! Wally is here for you to help. Just follow my rules and lead everything will be fine, if you want to talk you may ask me! Oh no.. I have to go now. Everyone is waiting for me.
+    In this read me, I will introuduce everyone here! amd I hope ya'll can understand us more!
+    I got abit memory problem so if I don't remember something please don't get mad. I will try my best to remember.
 
-[CIU]Also remember until you hear me again... Keep your smile merry.. and always know.. that I love you very much.❦
+    And you can ask me anything I would love to help!:)
+    I love and respect all kinda people/ships.
 
-[CIU] Goodbye🍎 🌀:) ᵈᵒ ʸᵒᵘ ᶠⁱⁿᵈ ˢᵉᶜʳᵉᵗ ᵃᵗ ʰᵒᵐᵉ
+    Usually spend time in drawing or some games (I only play Roblox, Minecraft, Pony Town and Vrchat rn.)
 
-[C]╚═══*.·:·.☽✧   ✦    ✧☾.·:·.*═══╝
 
-[IMG=Y0B] [IMG=L8A]
+
+╚═══*.·:·.☽✧   ✦    ✧☾.·:·.*═══╝
 
 .
 
