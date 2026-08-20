@@ -1,7 +1,7 @@
 # 𝓝ꕤ✦ഒ𓍼 / README
 about us
 
-`*WELCOME TO OUR HOME*`
+*` WELCOME TO OUR HOME `*
 ![WELCOME TO OUR HOME](https://i.pinimg.com/1200x/30/02/cb/3002cb46254963e8c316a73a78b3b039.jpg) ~❦
 
 
