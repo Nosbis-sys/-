@@ -154,163 +154,66 @@ about us
 
 .
 
-.
+╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
 
-.
+General
 
-.
+    Name:
+    *Irhis/Cisong (or js call the character I in!)*
 
-.
+    Nichmnames:
+    *Iris/Foxy/Fox/Stannis/Stan*
 
-.
+    Age:
+    *21*
 
-.
+    Gender:
+    Fluid/He/She/they/it
 
-.
+    Species:
+    Human/Shadow
 
-.
+    Weight:
+    guess
 
-.
+    Birthday:
+    May 30th.
 
-.
+    Sexuality:
+    Pan
 
-.
+    Marital status:
+    Taken(By TT)
+    
+    Lover:
+    TT/Magnus
 
-.
+╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
 
-.
+!(ME!)[https://i.pinimg.com/736x/94/e2/f1/94e2f1459bda4b173effed05950ff441.jpg]
 
-.
+≻──────── ⋆✩⋆ ─────────≺
 
-.
+╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
 
-.
+Moods:
 
-.
+    (v)Happy
+    (v) curious
+    ( ) add
 
-.
+╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
 
-.
+≻─────── ⋆✩⋆ ─────────≺
 
-.
+╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
 
-.
+Relationships:
 
-.
+    *childrens:*
+     [Oliver](https://github.com/Oxlivervet)
 
-.
-
-[ICUB] ....I can’t hear you ....Do you know who I am? We’ve looked into each other’s eyes so many times. You are looking at me know.... Can you hear me?
-
-[IMG=Q3M]
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-.
-
-[C]╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
-
-[ICU]General
-
-[CU]Name:
-
-[CU]Wally Darling
-
-[ICU]Nichmnames:
-
-[CU] Wally
-
-[CU] Darling
-
-[CU]add
-
-[ICU]Age:
-
-[CU]25
-
-[ICU]Gender:
-
-[CU]Male
-
-[ICU]Pronoun:
-
-[CU]He/They
-
-[ICU]Species:
-
-[CU] Puppet
-
-[ICU]Weight:
-
-[CU] guess
-
-[ICU]Birthday:
-
-[CU] idk
-
-[ICU]High:
-
-[CU] 3 feet tall
-
-[ICU]Sexuality:
-
-[CU] Bisexual
-
-[ICU]Marital status:
-
-[CU] Single maybe
-
-[ICU]Lover:
-
-[CU] Neighbors (YOU)
-
-[C]╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
-
-[C]≻──────── ⋆✩⋆ ─────────≺
-
-[C]╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
-
-[CIU]Moods
-
-[CIU](v)Happy..
-
-[CIU] ( ) add
-
-[C]╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
-
-[C]≻─────── ⋆✩⋆ ─────────≺
-
-[C]╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
-
-[CU]Relationships:
-
-[ICU] [I love you Neighbor ♥︎|ndc://user-me]
-
-[C]╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
 
 [IMG=E5P]
 
