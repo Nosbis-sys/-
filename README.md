@@ -162,7 +162,7 @@ General
     *Irhis/Cisong (or js call the character I in!)*
 
     Nichmnames:
-    *Iris/Foxy/Fox/Stannis/Stan*
+    *Iris/Foxy/Fox/Stannis/Stan/Fur*
 
     Age:
     *21*
@@ -173,9 +173,6 @@ General
     Species:
     Human/Shadow
 
-    Weight:
-    guess
-
     Birthday:
     May 30th.
 
@@ -183,10 +180,10 @@ General
     Pan
 
     Marital status:
-    Taken(By TT)
+    Idk
     
     Lover:
-    TT/Magnus
+    I love everyone.
 
 ╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
 
