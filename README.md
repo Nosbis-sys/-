@@ -210,12 +210,10 @@ Moods:
 
 Relationships:
 
-    *childrens:*
+childrens:
    [Oliver](https://github.com/Oxlivervet)
 
 ╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
-
-[IMG=E5P]
 
 .
 
