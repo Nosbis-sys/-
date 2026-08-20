@@ -190,7 +190,7 @@ General
 
 ╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
 
-!(ME!)[https://i.pinimg.com/736x/94/e2/f1/94e2f1459bda4b173effed05950ff441.jpg]
+![ME](https://i.pinimg.com/736x/94/e2/f1/94e2f1459bda4b173effed05950ff441.jpg)
 
 ≻──────── ⋆✩⋆ ─────────≺
 
