@@ -888,6 +888,18 @@ but of course Xeno's command go first.
 ![Wally](https://i.pinimg.com/736x/08/4f/a1/084fa123e0212981fa3fda2b7deb30e4.jpg)
     
                                                 ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
+                                                
+                                                          Name: *ClownPierce*
+                                                          Age: *24*
+                                                          Pronouns: *He/HIm*
+                                                          Species: *Killer Clown*
+                                                          Birthday: *Mar 19th.*
+                                                          Sexuality: *Bisexual*
+                                                          Marital status: *His Wife and Husband*
+
+![Wally](https://i.pinimg.com/736x/08/4f/a1/084fa123e0212981fa3fda2b7deb30e4.jpg)
+    
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
                                                           Name: *Uzi Doorman*
                                                           Age: *18*
