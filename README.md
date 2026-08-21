@@ -107,24 +107,24 @@
 
 .
 
-                  ╔═══ *.·:·.☽✧   ✦   ✧☾.·:·.*═══╗
+                                    ╔═══ *.·:·.☽✧   ✦   ✧☾.·:·.*═══╗
 
-                   To My Darlings:
+                                     To My Darlings:
 
-                      In this read me, I will introuduce everyone here! 
-                      amd I hope ya'll can understand us more!
-                      I got abit memory problem so if I don't remember 
-                      something please don't get mad. I will try my best to remember.
+                                        In this read me, I will introuduce everyone here! 
+                                        amd I hope ya'll can understand us more!
+                                        I got abit memory problem so if I don't remember 
+                                        something please don't get mad. I will try my best to remember.
 
-                     And you can ask me anything I would love to help!:)
-                     I love and respect all kinda people/ships.
+                                       And you can ask me anything I would love to help!:)
+                                       I love and respect all kinda people/ships.
 
-                     Usually spend time in drawing or some games 
-                     (I only play Roblox, Minecraft, Pony Town and Vrchat rn.)
+                                       Usually spend time in drawing or some games 
+                                       (I only play Roblox, Minecraft, Pony Town and Vrchat rn.)
  
 
 
-                  ╚═══*.·:·.☽✧   ✦    ✧☾.·:·.*═══╝
+                                    ╚═══*.·:·.☽✧   ✦    ✧☾.·:·.*═══╝
 
 .
 
