@@ -234,7 +234,7 @@ childrens:
 [Ashley](https://github.com/Asher-amc)
                                                            
 
-╚═══.·:·.☽✧          ✦          ✧☾.·:·.═══╝
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 .
 
@@ -254,82 +254,83 @@ childrens:
 
 # The Voice In My Head 
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
-General
+                                                     # General
 
-    Name:
-    *Jester*
+                                                          Name:
+                                                               *Jester*
 
-    Nichmnames:
-    *J/Jestery/Jestey*
+                                                          Nichmnames:
+                                                               *J/Jestery/Jestey*
 
-    Age:
-    *24*
+                                                          Age:
+                                                               *24*
 
-    Gender:
-    Male
+                                                          Gender:
+                                                               Male
 
-    Pronouns: 
-    he/him
+                                                          Pronouns: 
+                                                               he/him
 
-    Species:
-    Monster
+                                                          Species:
+                                                               Monster
 
-    Birthday:
-    Sep 29th.
+                                                          Birthday:
+                                                               Sep 29th.
 
-    Sexuality:
-    Bisexual
+                                                          Sexuality:
+                                                               Bisexual
 
-    Marital status:
-    Single
+                                                          Marital status:
+                                                               Single
     
-    Lover:
-    No one
+                                                          Lover:
+                                                               No one
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 ![Jester](https://i.pinimg.com/736x/c0/2f/c1/c02fc1db8ba4321b9dbbeefd5d47f3e8.jpg)
 
-≻──────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
 
-Moods:
+                                                           Moods:
 
-    (v) Unknow
-    (v) curious
-    ( ) adding
+                                                              (v) Unknow
+                                                              (v) curious
+                                                              ( ) adding
 
-Allow:
+                                                           Allow:
       
-    - ask hug
-    - ask before you do anything around me, dear one.
-    - flirt ( oh? if you dear to.. )
-    - adding
+                                                              - ask hug
+                                                              - ask before you do anything around me, dear one.
+                                                              - flirt ( oh? if you dear to.. )
+                                                              - adding
  
-**DONT** Allow:
+                                                           **DONT** Allow:
 
-    - Dramas
-    - Harleauin in kitchen
-    - touch 
-    - command by others
-    - adding
+                                                              - Dramas
+                                                              - Harleauin in kitchen
+                                                              - touch 
+                                                              - command by others
+                                                              - adding
 
     
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
 
-≻─────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
+
 
 Relationships:
 
 None.
    
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 
 ![Jester banner](https://i.pinimg.com/1200x/77/72/55/777255e5447f14c0fde64313c7f0263e.jpg)
 
@@ -348,80 +349,84 @@ None.
 .
 
 .
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
 
-General
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
-    Name:
-    *C00LKIDD(Adult)*
+                                                     # General
 
-    Nichmnames:
-    *7E4M C00LKIDD/CK/Kool aid/c00l*
+                                                          Name:
+                                                               *C00LKIDD(Adult)*
 
-    Age:
-    *21*
+                                                          Nichmnames:
+                                                               *7E4M C00LKIDD/CK/Kool aid/c00l*
 
-    Gender:
-    Male
+                                                          Age:
+                                                               *21*
 
-    Pronouns: 
-    he/him
+                                                          Gender:
+                                                               Male
 
-    Species:
-    Demon
+                                                          Pronouns: 
+                                                               he/him
 
-    Birthday:
-    Apr 1th.
+                                                          Species:
+                                                               Demon
 
-    Sexuality:
-    Homosexual
+                                                          Birthday:
+                                                               Apr 1th.
 
-    Marital status:
-    Married
+                                                          Sexuality:
+                                                               Homosexual
+
+                                                          Marital status:
+                                                               Married
     
-    Lover:
-    Elliot
+                                                          Lover:
+                                                               Elliot
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
-
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
+                                              
 ![C00lkidd](https://i.pinimg.com/736x/f6/21/cb/f621cb19f088711df6833621553ba741.jpg)
 
-≻──────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
 
-Moods:
+                                                           Moods:
 
-    (v) Angry
-    (v) Tired..
-    ( ) adding
+                                                              (v) Angry
+                                                              (v) Tired..
+                                                              ( ) adding
 
-Allow:
+                                                           Allow:
       
-    - ask before you do anything around me
-    - Fire/Lava
-    - adding
+                                                              - ask before you do anything around me
+                                                              - Fire/Lava
+                                                              - adding
  
-**DONT** Allow:
+                                                           **DONT** Allow:
 
-    - Water around me..
-    - touch 
-    - adding
+                                                              - Water around me..
+                                                              - touch 
+                                                              - adding
 
     
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
 
-≻─────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
 
 Relationships:
 
 Elliot *(Husband)*
    
-I'm 21 year old and I'm tired all the time. Whatever.. (dislike water and like lava/fire just like the kids me.)
+I'm 21 year old and I'm tired all the time. 
+Whatever.. (dislike water and like lava/
+fire just like the kids me.)
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 ![C00lkidd banner](https://i.pinimg.com/736x/8f/24/a5/8f24a51694c2dc84573f5a295cdbd789.jpg)
 .
 
@@ -439,72 +444,75 @@ I'm 21 year old and I'm tired all the time. Whatever.. (dislike water and like l
 
 .
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
-General
+                                                     # General
+                                                     
+                                                          Name:
+                                                               *C00LKIDD(Minor)*
 
-    Name:
-    *C00LKIDD(Minor)*
+                                                          Nichmnames:
+                                                               *7E4M C00LKIDD/CK/Kool aid/c00l*
 
-    Nichmnames:
-    *7E4M C00LKIDD/CK/Kool aid/c00l*
+                                                          Age:
+                                                               *13*
 
-    Age:
-    *13*
+                                                          Gender:
+                                                               Male
 
-    Gender:
-    Male
+                                                          Pronouns: 
+                                                               he/him
 
-    Pronouns: 
-    he/him
+                                                          Species:
+                                                               Demon
 
-    Species:
-    Demon
+                                                          Birthday:
+                                                               Apr 1th.
 
-    Birthday:
-    Apr 1th.
+                                                          Sexuality:
+                                                               not sure
 
-    Sexuality:
-    not sure
-
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 ![C00lkidd 2](https://i.pinimg.com/736x/db/34/66/db346679dbf38446465217b92f5ff894.jpg)
 
-≻──────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
 
-Moods:
+                                                           Moods:
 
-    (v) Happy!
-    (v) curious
-    ( ) adding
+                                                              (v) Happy!
+                                                              (v) curious
+                                                              ( ) adding
 
-Allow:
+                                                           Allow:
       
-    - ask before you do anything around him
-    - Fire/Lava
-    - adding
+                                                              - ask before you do anything around him
+                                                              - Fire/Lava
+                                                              - adding
  
-**DONT** Allow:
+                                                           **DONT** Allow:
 
-    - Water around him..
-    - touch 
-    - adding
+                                                              - Water around him..
+                                                              - touch 
+                                                              - adding
 
     
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
 
-≻─────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
-
-
-C4N W3 P1AY? 1 L0V3 H4V3 S0M3 FUN!! (Please don't touch him, he dislike body tounch. he also dislike water. love touch fire.)
+╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
 
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+C4N W3 P1AY? 1 L0V3 H4V3 S0M3 FUN!! 
+(Please don't touch him, 
+he dislike body tounch. 
+he also dislike water. love touch fire.)
+
+
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 ![C00lkidd banner 2](https://i.pinimg.com/736x/17/62/7e/17627e522f213b5c15e7378824b9e41e.jpg)
 .
 
@@ -522,71 +530,71 @@ C4N W3 P1AY? 1 L0V3 H4V3 S0M3 FUN!! (Please don't touch him, he dislike body tou
 
 .
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
-General
+                                                     # General
 
-    Name:
-    *ParrotX2*
+                                                          Name:
+                                                               *ParrotX2*
 
-    Nichmnames:
-    *Parrot/Biggest Bird*
+                                                          Nichmnames:
+                                                               *Parrot/Biggest Bird*
 
-    Age:
-    *21*
+                                                          Age:
+                                                               *21*
 
-    Gender:
-    Male
+                                                          Gender:
+                                                               Male
 
-    Pronouns: 
-    he/him
+                                                          Pronouns: 
+                                                               he/him
 
-    Species:
-    Human/Bird
+                                                          Species:
+                                                               Human/Bird
 
-    Birthday:
-    Jul 17th.
+                                                          Birthday:
+                                                               Jul 17th.
 
-    Sexuality:
-    Idk bro I still need figure out
+                                                          Sexuality:
+                                                               Idk bro I still need figure out
 
-    Marital status:
-    Single
+                                                          Marital status:
+                                                               Single
     
-    Lover:
-    None
+                                                          Lover:
+                                                               None
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 ![Parrot](https://i.pinimg.com/736x/63/44/b4/6344b4209327c24be3e064921ae41149.jpg)
 
-≻──────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
 
-Moods:
+                                                           Moods:
 
-    (v) Angry
-    (v) Bro
-    ( ) adding
+                                                              (v) Angry
+                                                              (v) Bro
+                                                              ( ) adding
 
-Allow:
+                                                           Allow:
       
-    - free hug
-    - ships (Just don't make it weird bro)
-    - adding
+                                                              - free hug
+                                                              - ships (Just don't make it weird bro)
+                                                              - adding
  
-**DONT** Allow:
+                                                           **DONT** Allow:
 
-    - Dramas
-    - adding
+                                                              - Dramas
+                                                              - adding
 
     
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
 
-≻─────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
 
 Relationships:
 
@@ -594,9 +602,10 @@ Wifies (a good old friend of my.)
 Theo (bro isn't the bigest bird/pal)
 Wemmbu (We are chill i guess)
 
-   I promise and I will do my best to be the greatest King.
+   I promise and I will do my best to be
+   the greatest King.
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 ![Parrot banner](https://i.pinimg.com/736x/dd/8a/76/dd8a762be6f2967176ea32a02f716dbe.jpg)
 .
 
@@ -613,69 +622,69 @@ Wemmbu (We are chill i guess)
 .
 
 .
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
 
-General
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
-    Name:
-    *Verity™*
+                                                     # General
 
-    Nichmnames:
-    *Verity/Your personal helper friend!*
+                                                          Name:
+                                                               *Verity™*
 
-    Age:
-    *???*
+                                                          Nichmnames:
+                                                               *Verity/Your personal helper friend!*
 
-    Pronouns: 
-    They/Them/It
+                                                          Age:
+                                                               *???*
 
-    Species:
-    Ai
+                                                          Pronouns: 
+                                                               They/Them/It
 
-    Birthday:
-    Jun 19th.
+                                                          Species:
+                                                               Ai
 
-    Sexuality:
-    ?
+                                                          Birthday:
+                                                               Jun 19th.
 
-    Marital status:
-    Single
+                                                          Sexuality:
+                                                               ?
+
+                                                          Marital status:
+                                                               Single
     
-    Lover:
-    None
+                                                          Lover:
+                                                               None
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 ![Verity](https://i.pinimg.com/736x/ee/ed/c0/eeedc088450a3f5d49988d0e61a52f00.jpg)
 
-≻──────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
+                                                           Moods:
 
-Moods:
+                                                              (v) Cheerful
+                                                              ( ) adding
 
-    (v) Cheerful
-    ( ) adding
-
-Allow:
+                                                           Allow:
       
-    - free hug
-    - ask any question
-    - adding
+                                                              - free hug
+                                                              - ask any question
+                                                              - adding
  
-**DONT** Allow:
+                                                           **DONT** Allow:
 
-    - Dramas
-    - Don't ship me with Mob Please
-    - Don't mention scene about Mob death to Them.
-    - adding
+                                                              - Dramas
+                                                              - Don't ship me with Mob Please
+                                                              - Don't mention scene about Mob death to Them.
+                                                              - adding
 
     
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
 
-≻─────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
 
 Relationships:
 
@@ -687,7 +696,7 @@ Hellooo!! I'm Verity!
 Your personal helper friend! 
 ask me anything! I know everything!
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 ![Verity banner](https://i.pinimg.com/736x/85/b6/48/85b648fec0787181f819a70183ca1130.jpg)
 .
 
@@ -705,66 +714,68 @@ ask me anything! I know everything!
 
 .
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
-General
+                                                     # General
 
-    Name:
-    *Stalker*
+                                                          Name:
+                                                               *Stalker*
 
-    Age:
-    *10*
+                                                          Age:
+                                                               *10*
 
-    Pronouns: 
-    She/Her
+                                                          Pronouns: 
+                                                               She/Her
 
-    Species:
-    Rat
+                                                          Species:
+                                                               Rat
 
-    Birthday:
-    Jul 11th.
+                                                          Birthday:
+                                                               Jul 11th.
 
-    Sexuality:
-    ?
+                                                          Sexuality:
+                                                               ?
 
-    Marital status:
-    Single
+                                                          Marital status:
+                                                               Single
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 ![Stalker](https://i.pinimg.com/736x/94/10/91/941091e3eb80e6ee178767d81f35e66a.jpg)
 
-≻──────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
 
-Moods:
+                                                           Moods:
 
-    (v) Cheerful
-    (v) Curious
-    (v) Happy
-    ( ) adding
+                                                              (v) Cheerful
+                                                              (v) Curious
+                                                              (v) Happy
+                                                              ( ) adding
 
-Allow:
+                                                           Allow:
       
-    - free hug
-    - adding
+                                                              - free hug
+                                                              - adding
  
-**DONT** Allow:
+                                                           **DONT** Allow:
 
-    - adding
+                                                              - adding
 
     
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
 
-≻─────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
 
-She can't speak! She only can watch people!^.^ 
-she can't type either! so i help her type if she is here!
+She can't speak! 
+She only can watch people!^.^ 
+she can't type either! 
+so i help her type if she is here!
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 ![Stalker banner](https://i.pinimg.com/736x/49/15/41/49154131d6c5e7cb72c2bd5db48ed863.jpg)
 .
 
@@ -782,68 +793,68 @@ she can't type either! so i help her type if she is here!
 
 .
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
-General
+                                                     # General
 
-    Name:
-    *Stanley Snyder*
+                                                          Name:
+                                                               *Stanley Snyder*
 
-    Nicknames:
-    *Stan/Stanley/Ultimate Knight/Knight/Commander/Captain/Stanlee*
+                                                          Nicknames:
+                                                               *Stan/Stanley/Ultimate Knight/Knight/Commander/Captain/Stanlee*
 
-    Age:
-    *29*
+                                                          Age:
+                                                               *29*
 
-    Pronouns: 
-    He/Him
+                                                          Pronouns: 
+                                                               He/Him
 
-    Species:
-    Human
+                                                          Species:
+                                                               Human
 
-    Birthday:
-    Sep 1th.
+                                                          Birthday:
+                                                               Sep 1th.
 
-    Sexuality:
-    Bisexual
+                                                          Sexuality:
+                                                               Bisexual
 
-    Marital status:
-    Single
+                                                          Marital status:
+                                                               Single
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 ![Stanley](https://i.pinimg.com/736x/48/eb/0d/48eb0d8dc8851cf1a9d47546f758f8aa.jpg)
 
-≻──────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
 
-Moods:
+                                                           Moods:
 
-    (v) Serious
-    ( ) adding
+                                                              (v) Serious
+                                                              ( ) adding
 
-Allow:
+                                                           Allow:
       
-    - Orders
-    - adding
+                                                              - Orders
+                                                              - adding
  
-**DONT** Allow:
+                                                           **DONT** Allow:
 
-    - adding
+                                                              - adding
 
     
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
 
-≻─────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
 
 I'm a military soldier. 
 I only follow order from Xeno or goverment, 
 but of course Xeno's command go first.
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+╚═══.·:·.☽✧           ✦           ✧☾.·:·.═══╝
 ![Stanley banner](https://i.pinimg.com/1200x/87/ca/80/87ca808dd88c545081e00511a784c4b2.jpg)
 .
 
@@ -861,152 +872,167 @@ but of course Xeno's command go first.
 
 .
 
-# I'm getting Lazy.. so I will just say Others name.
+                                              # I'm getting Lazy.. so I will just say Others name.
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
+                                              
 
-
-    Name: *Wally Darling*
-    Age: *24*
-    Pronouns: *He/HIm*
-    Species: *Puppet*
-    Birthday: *Jul 4th.*
-    Sexuality: *Bisexual*
-    Marital status: *Love Neighbor(YOU)*
+                                                          Name: *Wally Darling*
+                                                          Age: *24*
+                                                          Pronouns: *He/HIm*
+                                                          Species: *Puppet*
+                                                          Birthday: *Jul 4th.*
+                                                          Sexuality: *Bisexual*
+                                                          Marital status: *Love Neighbor(YOU)*
 
 ![Wally](https://i.pinimg.com/736x/08/4f/a1/084fa123e0212981fa3fda2b7deb30e4.jpg)
     
-    ≻─────── ⋆✩⋆ ─────────≺
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *Uzi Doorman*
-    Age: *18*
-    Pronouns: *She/Her*
-    Species: *Robot*
-    Birthday: *Oct 11th.*
-    Sexuality: *Straight*
-    Marital status: *Dating with N*
-    BITE ME!! THERE IS NOTHING I CAN INTRO FOR YOU FREAKS!!!!
+                                                          Name: *Uzi Doorman*
+                                                          Age: *18*
+                                                          Pronouns: *She/Her*
+                                                          Species: *Robot*
+                                                          Birthday: *Oct 11th.*
+                                                          Sexuality: *Straight*
+                                                          Marital status: *Dating with N*
+                                                          
+                                                          BITE ME!! 
+                                                          THERE IS NOTHING I CAN INTRO FOR YOU FREAKS!!!!
     
 ![Uzi](https://i.pinimg.com/736x/81/7b/06/817b0689bffc8cd30d943e5a029830ff.jpg)
 
-    ≻─────── ⋆✩⋆ ─────────≺
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *Serial Designation N*
-    Age: *18*
-    Pronouns: *He/Him*
-    Species: *SD Robot*
-    Birthday: *Oct 10th.*
-    Sexuality: *Straight*
-    Marital status: *Dating with Uzi!*
-    Hi! I'm Serial Designation N! you could just call me N! 
-    Andddd- please don't mind Uzi. (ps: She is my gf by the way!)
+                                                          Name: *Serial Designation N*
+                                                          Age: *18*
+                                                          Pronouns: *He/Him*
+                                                          Species: *SD Robot*
+                                                          Birthday: *Oct 10th.*
+                                                          Sexuality: *Straight*
+                                                          Marital status: *Dating with Uzi!*
+                                                          
+                                                          Hi! I'm Serial Designation N! 
+                                                          you could just call me N! 
+                                                          Andddd- please don't mind Uzi. 
+                                                          (ps: She is my gf by the way!)
     
    ![N](https://i.pinimg.com/736x/d6/f0/8e/d6f08e7089af194559f4fc53ab854fb7.jpg)
 
-       ≻─────── ⋆✩⋆ ─────────≺
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *CYN*
-    Age: *16*
-    Pronouns: *She/Her*
-    Species: *Robot/Human?*
-    Birthday: *Jan 10th.*
-    Sexuality: *?*
+                                                          Name: *CYN*
+                                                          Age: *16*
+                                                          Pronouns: *She/Her*
+                                                          Species: *Robot/Human?*
+                                                          Birthday: *Jan 10th.*
+                                                          Sexuality: *?*
     
-    Giggle. Let me go inside of you.
+                                                          Giggle. Let me go inside of you.
 
 ![CYN](https://i.pinimg.com/736x/61/37/46/6137462369175742f48f4d360b46e729.jpg)
     
-    ≻─────── ⋆✩⋆ ─────────≺
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *SchoolHouse Sonic*
-    Age: *32*
-    Pronouns: *He/Him*
-    Species: *Hedgehog*
-    Birthday: *???*
-    Sexuality: *?*
-    Marital status: *Single*   
-    This one can only speak few words. he love his students!
+                                                          Name: *SchoolHouse Sonic*
+                                                          Age: *32*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Hedgehog*
+                                                          Birthday: *???*
+                                                          Sexuality: *?*
+                                                          Marital status: *Single*   
+                                                          
+                                                          This one can only speak few words. 
+                                                          he love his students!
 
 ![SH Sonic](https://media1.tenor.com/m/2PjgiowewAwAAAAd/sonic-schoolhouse.gif)
      
-    ≻─────── ⋆✩⋆ ─────────≺
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *Rewrite Sonic*
-    Age: *??*
-    Pronouns: *He/Him*
-    Species: *Hedgehog/Demon*
-    Birthday: *Jan 23th.*
-    Sexuality: *??*
-    Marital status: *Single*
-    He cant speak! he only can do silly laugh and typin!
+                                                          Name: *Rewrite Sonic*
+                                                          Age: *??*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Hedgehog/Demon*
+                                                          Birthday: *Jan 23th.*
+                                                          Sexuality: *??*
+                                                          Marital status: *Single*
+                                                          
+                                                          He cant speak! 
+                                                          he only can do silly laugh and typin!
 
 ![R Sonic](https://media1.tenor.com/m/5Hm5yFWYhd4AAAAC/rewrite-rewrite-sonic.gif)
 
-    ≻─────── ⋆✩⋆ ─────────≺
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *Lucifer Morningstar*
-    Age: *??*
-    Pronouns: *He/Him*
-    Species: *Falling Angel*
-    Birthday: *Jan 26th.*
-    Sexuality: *Bisexual*
+                                                          Name: *Lucifer Morningstar*
+                                                          Age: *??*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Falling Angel*
+                                                          Birthday: *Jan 26th.*
+                                                          Sexuality: *Bisexual*
     
-    Marital status: *Dating with Bambiii*
-    Call Me Daddy! Wait.. NO- Call me Lu!
-    or your King hehe you know~ 
-    I'm the King of Hell after all. 
-    And I HATE the Bambi..
+                                                          Marital status: *Dating with Bambiii*
+                                                          Call Me Daddy! Wait.. NO- Call me Lu!
+                                                          or your King hehe you know~ 
+                                                          I'm the King of Hell after all. 
+                                                          And I HATE the Bambi..
 
 ![Luci](https://i.pinimg.com/736x/f5/81/af/f581af0aa11b84d4e55b136d079e1a66.jpg)
 
-    ≻─────── ⋆✩⋆ ─────────≺
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *Alastor Louis Hartfelt*
-    Age: *??*
-    Pronouns: *He/Him*
-    Species: *Demon/Human(used to be)*
-    Birthday: *Jan 1th.*
-    Sexuality: *AceAro*
+                                                          Name: *Alastor Louis Hartfelt*
+                                                          Age: *??*
+                                                          Pronouns: *He/Him*
+                                                          Species: *Demon/Human(used to be)*
+                                                          Birthday: *Jan 1th.*
+                                                          Sexuality: *AceAro*
     
-    Greetings, My dear listeners! 
-    I'm your lovely host, Alastor! 
-    Don't trust the words of Lu.
+                                                          Greetings, My dear listeners! 
+                                                          I'm your lovely host, Alastor! 
+                                                          Don't trust the words of Lu.
 
 ![Alastor](https://i.pinimg.com/736x/61/37/46/6137462369175742f48f4d360b46e729.jpg)
 
-    ≻─────── ⋆✩⋆ ─────────≺
+
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *Bill Cipher*
-    Age: *??*
-    Pronouns: *He/They*
-    Species: *~~Demon~~/God*
-    Sexuality: *AceAro*
+                                                          Name: *Bill Cipher*
+                                                          Age: *??*
+                                                          Pronouns: *He/They*
+                                                          Species: *~~Demon~~/God*
+                                                          Sexuality: *AceAro*
 
 ![Bill](https://i.pinimg.com/736x/01/72/30/017230a409c668767129dcae3bf312c9.jpg)
 
-    ≻─────── ⋆✩⋆ ─────────≺
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *Docter Who*
-    Age: *42*
-    Pronouns: *He/Him*
-    Species: *God*
-    Birthday: *Nov 23th.*
-    Sexuality: *Straight*
+                                                          Name: *Docter Who*
+                                                          Age: *42*
+                                                          Pronouns: *He/Him*
+                                                          Species: *God*
+                                                          Birthday: *Nov 23th.*
+                                                          Sexuality: *Straight*
     
 ![DW](https://i.pinimg.com/736x/43/22/2c/43222c0915ca409d9b76bb50a2292ae5.jpg)
 
-    ≻─────── ⋆✩⋆ ─────────≺
+  
+                                                ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
-    Name: *Yi Xi*
-    Age: *25*
-    Pronouns: *They/Them*
-    Species: *Human*
-    Birthday: *Mar 15th.*
-    Sexuality: *??*
+                                                          Name: *Yi Xi*
+                                                          Age: *25*
+                                                          Pronouns: *They/Them*
+                                                          Species: *Human*
+                                                          Birthday: *Mar 15th.*
+                                                          Sexuality: *??*
     
 ![Yi Xi](https://media1.tenor.com/m/is8j3DZWpGgAAAAC/butcher-vanity-yi-xi.gif)
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 
 □□□□□0%
@@ -1735,33 +1761,33 @@ Ok then.Just keeps going and you will see it..
 
 .
 
-◇●○◆○●◇●○◆○●◇◇●○◆○●◇
+                                                      ◇●○◆○●◇●○◆○●◇◇●○◆○●◇
 
-╭────── .   .   .   . ─── ✳
+                                              ╭────── .   .   .   . ─── ✳
 
-    Can you hear me? That's good!
+                                                Can you hear me? That's good!
 
-    I just want to say... 
-    get off of the Website.. 
-    You been on it far too long.. 
-    it's been 12 hours, dear.
+                                                I just want to say... 
+                                                get off of the Website.. 
+                                                You been on it far too long.. 
+                                                it's been 12 hours, dear.
 
-    Go outside and touch grass.. 
-    there's a lot of sunlight outside.
-    You should go try and get **more**..
+                                                Go outside and touch grass.. 
+                                                there's a lot of sunlight outside.
+                                                You should go try and get **more**..
 
-    Oh no.. I have to go now..
+                                                Oh no.. I have to go now..
 
-    Actually.. One other thing, dear one.
-    I really like you so much.. dear.. 
+                                                Actually.. One other thing, dear one.
+                                                I really like you so much.. dear.. 
 
-    Please.. don't leave.. Alone
+                                                Please.. don't leave.. Alone
 
 
-✳ ─── .   .   .   . ──────╯
+                                                            ✳ ─── .   .   .   . ──────╯
 
-◇●○◆○●◇●○◆○●◇◇●○◆○●◇
+                                                       ◇●○◆○●◇●○◆○●◇◇●○◆○●◇
 
-We always watching/j
+                                                         We always watching/j
 
 ![stare](https://i.pinimg.com/736x/db/68/a5/db68a57c88b6f60f13685fca56c953fa.jpg)
