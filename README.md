@@ -475,7 +475,7 @@ Allow:
  
 **DONT** Allow:
 
-    - Water around me..
+    - Water around him..
     - touch 
     - adding
 
@@ -748,7 +748,7 @@ Allow:
 ╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
 
 She can't speak! She only can watch people!^.^ 
-she can't type either! so we help her type if she is front!
+she can't type either! so i help her type if she is here!
 
 ╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
 ![Stalker banner](https://i.pinimg.com/736x/49/15/41/49154131d6c5e7cb72c2bd5db48ed863.jpg)
