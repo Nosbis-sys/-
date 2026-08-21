@@ -219,6 +219,7 @@
 
                                                               - Dramas
                                                               - loud noise
+                                                              - cover by others
                                                               - adding
 
                                                        ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
@@ -315,6 +316,7 @@ childrens:
                                                               - Harleauin in kitchen
                                                               - touch 
                                                               - command by others
+                                                              - cover by others
                                                               - adding
 
     
@@ -408,6 +410,7 @@ None.
 
                                                               - Water around me..
                                                               - touch 
+                                                              - cover by others
                                                               - adding
 
     
@@ -497,6 +500,7 @@ fire just like the kids me.)
 
                                                               - Water around him..
                                                               - touch 
+                                                              - cover by others
                                                               - adding
 
     
