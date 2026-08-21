@@ -111,14 +111,14 @@
 
                                                To My Darlings:
 
-                                                  In this read me, 
-                                                  I will introuduce everyone here! 
-                                                  amd I hope ya'll can understand 
-                                                  us more!
-                                                  I got abit memory problem so if 
-                                                  I don't remember 
-                                                  something please don't get mad. 
-                                                  I will try my best to remember.
+                                                 In this read me, 
+                                                 I will introuduce everyone here! 
+                                                 amd I hope ya'll can understand 
+                                                 us more!
+                                                 I got abit memory problem so if 
+                                                 I don't remember 
+                                                 something please don't get mad. 
+                                                 I will try my best to remember.
 
                                                  And you can ask me anything 
                                                  I would love to help!:)
@@ -162,75 +162,79 @@
 
 .
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                              ╔═══ .·:·.☽✧                 ✦                   ✧☾.·:·.═══╗
 
-General
 
-    Name:
-    *Irhis/Cisong (or js call the character I in!)*
+                                                     # General
 
-    Nichmnames:
-    *Iris/Foxy/Fox/Stannis/Stan/Fur*
+                                                          Name:
+                                                               *Irhis/Cisong*
+                                                               *(or js call the character I in!)*
 
-    Age:
-    *21*
+                                                          Nichmnames:
+                                                               *Iris/Foxy/Fox/Stannis/Stan/Fur*
 
-    Gender:
-    Fluid/He/She/they/it
+                                                          Age:
+                                                               *21*
 
-    Species:
-    Human/Shadow
+                                                          Gender:
+                                                               *Fluid/He/She/they/it*
 
-    Birthday:
-    May 30th.
+                                                          Species:
+                                                               *Human/Shadow*
 
-    Sexuality:
-    Pan
+                                                          Birthday:
+                                                               *May 30th.*
 
-    Marital status:
-    Idk
+                                                          Sexuality:
+                                                               *Pan*
+
+                                                          Marital status:
+                                                               *Idk*
     
-    Lover:
-    I love everyone.
+                                                          Lover:
+                                                               *I love everyone.*
+                                                               
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                              ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
 
 ![ME](https://i.pinimg.com/736x/94/e2/f1/94e2f1459bda4b173effed05950ff441.jpg)
 
-≻──────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                                       ╔═══ .·:·.☽✧       ✦        ✧☾.·:·.═══╗
+ 
+                                                           Moods:
+ 
+                                                              (v)Happy
+                                                              (v) curious
+                                                              ( ) adding
 
-Moods:
-
-    (v)Happy
-    (v) curious
-    ( ) adding
-
-Allow:
+                                                           Allow:
       
-    - Free hug
-    - adding
+                                                              - Free hug
+                                                              - adding
 
-**DONT** Allow:
+                                                         **DONT** Allow:
 
-    - Dramas
-    - loud noise
-    - adding
+                                                              - Dramas
+                                                              - loud noise
+                                                              - adding
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                                       ╚═══.·:·.☽✧       ✦        ✧☾.·:·.═══╝
 
-≻─────── ⋆✩⋆ ─────────≺
+                                                ≻─────────────────────  ⋆✩⋆ ───────────────────── ≺
 
-╔═══ .·:·.☽✧    ✦    ✧☾.·:·.═══╗
+                                                   ╔═══ .·:·.☽✧          ✦          ✧☾.·:·.═══╗
 
-Relationships:
+                                                      Relationships:
 
-childrens:
-   [Oliver](https://github.com/Oxlivervet)
-   [Ashley](https://github.com/Asher-amc)
+                                                         childrens:
+                                                           [Oliver](https://github.com/Oxlivervet)
+                                                           [Ashley](https://github.com/Asher-amc)
+                                                           
 
-╚═══.·:·.☽✧    ✦    ✧☾.·:·.═══╝
+                                                   ╚═══.·:·.☽✧          ✦          ✧☾.·:·.═══╝
 
 .
 
