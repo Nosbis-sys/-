@@ -168,32 +168,32 @@
                                                      # General
 
                                                           Name:
-                                                               *Irhis/Cisong*
-                                                               *(or js call the character I in!)*
+                                                              Irhis/Cisong
+                                                             (or js call the character I in!)
 
                                                           Nichmnames:
-                                                               *Iris/Foxy/Fox/Stannis/Stan/Fur*
+                                                              Iris/Foxy/Fox/Stannis/Stan/Fur
 
                                                           Age:
-                                                               *21*
+                                                               21
 
                                                           Gender:
-                                                               *Fluid/He/She/they/it*
+                                                               Fluid/He/She/they/it
 
                                                           Species:
-                                                               *Human/Shadow*
+                                                               Human/Shadow
 
                                                           Birthday:
-                                                               *May 30th.*
+                                                               May 30th.
 
                                                           Sexuality:
-                                                               *Pan*
+                                                               Pan
 
                                                           Marital status:
-                                                               *Idk*
+                                                               Idk
     
                                                           Lover:
-                                                               *I love everyone.*
+                                                              I love everyone.
                                                                
 
                                               ╚═══.·:·.☽✧                 ✦                   ✧☾.·:·.═══╝
