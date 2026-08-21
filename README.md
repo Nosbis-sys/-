@@ -897,7 +897,7 @@ but of course Xeno's command go first.
                                                           Sexuality: *Bisexual*
                                                           Marital status: *His Wife and Husband*
 
-![Wally](https://i.pinimg.com/736x/08/4f/a1/084fa123e0212981fa3fda2b7deb30e4.jpg)
+![Clown](https://i.pinimg.com/736x/6a/67/39/6a6739acb5687f4b9867f493932e2007.jpg)
     
                                                 ≻──────────────────────────  ⋆✩⋆ ──────────────────────────≺
     
